@@ -1,4 +1,4 @@
-# Anil Tripathi ji 
+# Alka Kitchen Garden NCR 
 
 Anil ji, even during his former tenure as a dedicated senior official government of India, has been into urban farming from years. He has full fledged garden at fourth floor of his house with flowers, vegetables giving him healthy harvest from past many decades. 
 
