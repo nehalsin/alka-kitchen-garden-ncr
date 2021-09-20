@@ -1,4 +1,4 @@
-* Anil Tripathi ji 
+# Anil Tripathi ji 
 
 Anil ji, even during his former tenure as a dedicated senior official government of India, has been into urban farming from years. He has full fledged garden at fourth floor of his house with flowers, vegetables giving him healthy harvest from past many decades. 
 
@@ -55,6 +55,32 @@ Based in urban concrete jungle National Capital Region (NCR), India, some of his
 ![IMG-20210919-WA0024](IMG-20210919-WA0024.jpg)
 
 ![IMG-20210919-WA0025](IMG-20210919-WA0025.jpg)
+
+![IMG-20210919-WA0026](IMG-20210919-WA0026.jpg)
+
+![IMG-20210919-WA0027](IMG-20210919-WA0027.jpg)
+
+![IMG-20210919-WA0028](IMG-20210919-WA0028.jpg)
+
+![IMG-20210919-WA0029](IMG-20210919-WA0029.jpg)
+
+![IMG-20210919-WA0030](IMG-20210919-WA0030.jpg)
+
+![IMG-20210919-WA0031](IMG-20210919-WA0031.jpg)
+
+![IMG-20210919-WA0032](IMG-20210919-WA0032.jpg)
+
+![IMG-20210919-WA0033](IMG-20210919-WA0033.jpg)
+
+![IMG-20210919-WA0034](IMG-20210919-WA0034.jpg)
+
+![IMG-20210919-WA0035](IMG-20210919-WA0035.jpg)
+
+![IMG-20210919-WA0036](IMG-20210919-WA0036.jpg)
+
+![IMG-20210919-WA0037](IMG-20210919-WA0037.jpg)
+
+(IMAGES' SOURCE: Anil Tripathi ji) 
 
 
 
